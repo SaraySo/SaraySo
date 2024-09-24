@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @SaraySo
-- 🌱 I’m currently learning Electrical Engineering
 - 📫 You can reach me by sarays4375@gmail.com  :)
 
 
